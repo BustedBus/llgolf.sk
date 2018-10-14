@@ -1,0 +1,1 @@
+# llgolf.sk
